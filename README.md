@@ -1,2 +1,3 @@
 ### CHERIE/ANGEL! Read CARRD for more details. 
-https://pa1.narvii.com/6503/e66bd5daea9e8401c5d938f4cd632146ae7ad101_hq.gif
+![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/4e7751e9-02c3-4918-913b-0c341decee09)
+
