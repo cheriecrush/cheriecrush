@@ -1,7 +1,5 @@
 ### CHERIE/ANGEL/RIN! 
 
-![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/9448bc2d-3b9e-4dbb-8183-d91058e3ad2c)
-
 
 ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/ca67ec18-2f7c-4f87-9f41-2ed79aa903ba)
 
