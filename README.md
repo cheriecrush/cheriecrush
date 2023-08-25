@@ -1,5 +1,4 @@
-### CHERIE/ANGEL/RIN! Read CARRD for more details. 
-
+### CHERIE/ANGEL/RIN! 
 
 ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/9448bc2d-3b9e-4dbb-8183-d91058e3ad2c)
 
