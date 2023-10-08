@@ -1,4 +1,4 @@
-### CHERIE/ANGEL/RIN! 
+### CHERIE/CHUU/RIN! 
 
 
 ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/7148d5d5-5bb6-4319-8f88-66a55620998d)
