@@ -13,8 +13,8 @@
  ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/962bbc05-74c8-45c4-9a60-0f9f2b825071) ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/97471f99-7451-4f53-a39f-5eea891f5fc1) ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/515fdf38-bf96-4f12-b85e-6b1b45c342cb) ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/bc261f4d-e4db-48ff-975f-ae1dd974c91e)
 
 
-
-
+![image](https://cdn.discordapp.com/attachments/1138549380589301822/1186063233795231845/image.png?ex=6591e276&is=657f6d76&hm=451c8dd259bc6ad0fd88fbe713976fed4fe1bd7b307d0e839cb076d5b6bd1596&)
+I made it in life thanks everyone for nominating me as legendary
 
 
 
