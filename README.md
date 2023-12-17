@@ -1,5 +1,5 @@
 
-I made it in life thanks everyone for nominating me as legendary ![image](https://cdn.discordapp.com/attachments/1138549380589301822/1186063233795231845/image.png?ex=6591e276&is=657f6d76&hm=451c8dd259bc6ad0fd88fbe713976fed4fe1bd7b307d0e839cb076d5b6bd1596&)
+## I made it in life thanks everyone for nominating me as legendary  ![image](https://cdn.discordapp.com/attachments/1138549380589301822/1186063233795231845/image.png?ex=6591e276&is=657f6d76&hm=451c8dd259bc6ad0fd88fbe713976fed4fe1bd7b307d0e839cb076d5b6bd1596&)
 
 
 
