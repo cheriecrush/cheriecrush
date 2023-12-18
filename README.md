@@ -1,5 +1,5 @@
 
-## I made it in life thanks everyone for nominating me as legendary (source from a rentry)  ![image](https://cdn.discordapp.com/attachments/1138549380589301822/1186078861990055966/Untitled1114_20231217175348.png?ex=6591f104&is=657f7c04&hm=231f6cd96c6a34bcfc4026c227d94346b8cd5a1279b849a538ad01b3aad57b2c&)
+## I made it in life thanks everyone for nominating me as legendary (source from a rentry)  ![image](https://media.discordapp.net/attachments/1080237365341208598/1186414275732975666/Untitled1120_20231218160641.png?ex=65932965&is=6580b465&hm=6ff23a24d9bccee155554833a23c765f8e523b481b6904968dba6cd03ae051b9&)
 
 
 ![red](https://watermelon.crd.co/assets/images/gallery21/427b44df.gif?v=ab2f6a73) ![red](https://watermelon.crd.co/assets/images/gallery21/f10ac2a8.gif?v=ab2f6a73) ![red](https://watermelon.crd.co/assets/images/gallery21/a65d0947.gif?v=ab2f6a73) ![red](https://watermelon.crd.co/assets/images/gallery21/bef96f8e.gif?v=ab2f6a73) 
