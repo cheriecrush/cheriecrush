@@ -1,5 +1,6 @@
 ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/8694227e-29ac-4558-84d9-3bd0d9916180)
-(Thank You Flower 4 This ^_^)
+
+Thanks, flower!
 
 
 
