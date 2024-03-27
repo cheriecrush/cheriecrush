@@ -1,5 +1,6 @@
 ![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/8694227e-29ac-4558-84d9-3bd0d9916180)
 ![image](https://media.discordapp.net/attachments/1075892916389691453/1222235829888487424/11678039_d1da9.gif?ex=66157ad1&is=660305d1&hm=0479e04ca17d03947613a7541e997633affe2f675f9f45e6131bf227a8b8922b&)
+
 thank you punpunism and oriwori for these LOVE YEWW SAUU MACHH
 
 
