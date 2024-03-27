@@ -1,8 +1,28 @@
-![image](https://github.com/cheriecrush/cheriecrush/assets/137821742/8694227e-29ac-4558-84d9-3bd0d9916180)
-![image](https://media.discordapp.net/attachments/1075892916389691453/1222235829888487424/11678039_d1da9.gif?ex=66157ad1&is=660305d1&hm=0479e04ca17d03947613a7541e997633affe2f675f9f45e6131bf227a8b8922b&)
+<p align="center">
+<img src="https://caterpie.crd.co/assets/images/gallery13/513a2de0.png?v=8cec5808"/>
+</p>
 
-thank you punpunism and oriwori for these LOVE YEWW SAUU MACHH
+<p align="center">
+$\text{\color{red}{tangled \ in \ loveㅤ\ stuck \ by \ you}}$
+
+</p> 
+<p align="center">
+<img src="https://64.media.tumblr.com/91a3c5401524769442826f054c9d0156/33e45473835a4979-14/s640x960/49ef713d5ec812bf42a464ce0f9ff421df62a7cf.gifv"/>
+</p>
+
+<div align="center">
+
+$\text{\color{red}{cherie \ ─ \ she/her + he ok}}$
+###  [.co/riri](https://rentry.co/riri) ㅤ[guestbook](https://cheriecrush.123guestbook.com/)ㅤ<p/>
+
+
+<p align="center">
+<img src="https://caterpie.crd.co/assets/images/gallery04/272dae00.png?v=55641fe5"/>
+</p>
+
+<div align="left">
 
 
 
-![tbhk](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e2d19796-8eae-4f0b-89c0-daee318a2611/ddq3jhl-87834f10-e139-4c7f-904b-28da608349f2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UyZDE5Nzk2LThlYWUtNGYwYi04OWMwLWRhZWUzMThhMjYxMVwvZGRxM2pobC04NzgzNGYxMC1lMTM5LTRjN2YtOTA0Yi0yOGRhNjA4MzQ5ZjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.S2Dc_me6IiAM9xDy7WQ2FgJx3KPlR92pZHpFklQZPQ8)![rei](https://camo.githubusercontent.com/1d4671a72f4e4bd3ee76643adf92232955e18bd0ccae201e5598f41ec0e9e20a/68747470733a2f2f65787465726e616c2d6d656469612e73706163656865792e6e65742f6d656469612f734e395a3169333054564e6a6551625333426c434e4a654e37434e7130737470785546796148354d365a61343d2f68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31656465633066643334373962616464356663353562353763363262376638332f323862663530646536316133303132362d65622f73313030783230302f656336616164386162373365653431336366363932623861396133383931663339656437643737392e706e67) ![ciel](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/23517405-3afc-4732-8072-7f0d512ef5f9/d2x9toh-4aa48deb-abd1-4a32-ba20-3884cb14868b.png/v1/fill/w_99,h_56,q_80,strp/ciel_phantomhive_by_hei_q_d2x9toh-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8yMzUxNzQwNS0zYWZjLTQ3MzItODA3Mi03ZjBkNTEyZWY1ZjlcL2QyeDl0b2gtNGFhNDhkZWItYWJkMS00YTMyLWJhMjAtMzg4NGNiMTQ4NjhiLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.D2OFt_OYHcelaefX9gv_AZUD26W6lJhGVZ3cyEt9ZGk)![ramuda](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/61670035-05a4-481c-b62a-565903bec13e/dcj2w6x-f494a802-f89c-4aa4-8e71-6f7153960174.png/v1/fill/w_99,h_56,q_80,strp/ramuda_amemura_stamp_by_ninealpha_dcj2w6x-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC82MTY3MDAzNS0wNWE0LTQ4MWMtYjYyYS01NjU5MDNiZWMxM2VcL2RjajJ3NngtZjQ5NGE4MDItZjg5Yy00YWE0LThlNzEtNmY3MTUzOTYwMTc0LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.mqDgCt9c7LRxoK8qjeTf1tVYidFu91zchQw35YWlWpY) ![crona](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bd316f6c-3d60-43e6-a57d-8aa1f3929cfc/d71s975-5e27c051-aae9-434f-988f-2df128e07aa6.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JkMzE2ZjZjLTNkNjAtNDNlNi1hNTdkLThhYTFmMzkyOWNmY1wvZDcxczk3NS01ZTI3YzA1MS1hYWU5LTQzNGYtOTg4Zi0yZGYxMjhlMDdhYTYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.faM74dF3nBuHoLns2-5BqLToNqtDUj7WDAZTnGLQ65c) 
+
+                   
