@@ -7,7 +7,7 @@ $\text{\color{red}{tangled \ in \ loveㅤ\ stuck \ by \ you}}$
 
 </p> 
 <p align="center">
-<img src="https://64.media.tumblr.com/91a3c5401524769442826f054c9d0156/33e45473835a4979-14/s640x960/49ef713d5ec812bf42a464ce0f9ff421df62a7cf.gifv"/>
+<img src=https://i.postimg.cc/vBmh0yTk/tumblr-dd9159818eecfb94fdfc0553484dd5c0-a07e6ea6-1280.jpg/>
 </p>
 
 <div align="center">
