@@ -12,7 +12,7 @@ $\text{\color{red}{tangled \ in \ loveㅤ\ stuck \ by \ you}}$
 
 <div align="center">
 
-$\text{\color{red}{cherie \ ─ \ she + he }}$
+$\text{\color{red}{cherie \ ─ \ he + she }}$
 ###  [.co/riri](https://rentry.co/riri) ㅤ[guestbook](https://cheriecrush.123guestbook.com/)ㅤ<p/>
 
 
