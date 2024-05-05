@@ -9,3 +9,9 @@ me swamp and gang
 </p> 
 <p align="center">
 
+<div align="center">
+
+  
+###  [.co/riri](https://rentry.co/riri)  ㅤ ㅤ[retrospring](https://retrospring.net/@cheriecrush)  ㅤ ㅤ[twitter](https://twitter.com/kaoworo)<p/>
+
+
