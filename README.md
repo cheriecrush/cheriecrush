@@ -14,4 +14,12 @@ me swamp and gang
   
 ###  [.co/riri](https://rentry.co/riri)  ㅤ ㅤ[retrospring](https://retrospring.net/@cheriecrush)  ㅤ ㅤ[twitter](https://twitter.com/kaoworo)<p/>
 
+</p> 
+<p align="center">
+
+</p> 
+<p align="center">
+<img src=https://i.postimg.cc/0j3F17J6/IMG-5651.jpg>
+
+
 
