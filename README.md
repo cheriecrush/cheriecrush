@@ -1,6 +1,6 @@
 </p> 
 <p align="center">
-me swamp and gang
+
 </p> 
 <p align="center">
 <img src=https://media1.tenor.com/images/b98e0731dcd334bbee9dc2c31af3597e/tenor.gif?itemid=15557419>
@@ -16,10 +16,6 @@ me swamp and gang
 
 </p> 
 <p align="center">
-
-</p> 
-<p align="center">
-<img src=https://i.postimg.cc/0j3F17J6/IMG-5651.jpg>
 
 
 
