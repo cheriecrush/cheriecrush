@@ -19,4 +19,4 @@
 </p> 
 <p align="center">
 
-![image title](https://rushter.com/counter.svg)
+![](https://komarev.com/ghpvc/?username=cheriecrush)
