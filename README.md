@@ -19,4 +19,4 @@
 </p> 
 <p align="center">
 
-![](https://komarev.com/ghpvc/?username=cheriecrush)
+![](https://komarev.com/ghpvc/?username=cheriecrush&color=dc143c)
