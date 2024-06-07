@@ -1,3 +1,9 @@
+</p> 
+<p align="center">
+
+<div align="center">
+  
+  ![](https://komarev.com/ghpvc/?username=cheriecrush&color=dc143c)
 
 
 </p> 
@@ -5,7 +11,7 @@
 
 </p> 
 <p align="center">
-<img src=https://i.pinimg.com/564x/7c/06/e9/7c06e9b9eb71af9b461a3ffd5b221555.jpg>
+<img src=https://i.postimg.cc/G3zs3gX4/Untitled1362-20240607193208.webp>
 
 
 </p> 
@@ -13,10 +19,11 @@
 
 <div align="center">
 
-  
-###  [.co/riri](https://rentry.co/riri)  ㅤ ㅤ[retrospring](https://retrospring.net/@cheriecrush)  ㅤ ㅤ[twitter](https://twitter.com/kaoworo)  ㅤ ㅤ[guestbook](https://cheriecrush.123guestbook.com)  ㅤ ㅤ[ptfamily](https://rentry.co/ponytownfamily)<p/>
+[![](https://i.postimg.cc/hjT6b73Y/Untitled1362-20240607194008.webp)](https://rentry.co/riri) [![](https://i.postimg.cc/L6HwL5ky/Untitled1362-20240607194337.webp)](https://rentry.co/riri) [![](https://i.postimg.cc/WbWWZn13/Untitled1362-20240607194421.webp)](https://rentry.co/riri)
 
+  
 </p> 
 <p align="center">
 
-![](https://komarev.com/ghpvc/?username=cheriecrush&color=dc143c)
+
+
