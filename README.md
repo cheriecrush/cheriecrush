@@ -19,7 +19,7 @@
 
 <div align="center">
 
-[![](https://i.postimg.cc/hjT6b73Y/Untitled1362-20240607194008.webp)](https://rentry.co/riri) [![](https://i.postimg.cc/L6HwL5ky/Untitled1362-20240607194337.webp)]([https://twitter.com/kaoworo) [![](https://i.postimg.cc/WbWWZn13/Untitled1362-20240607194421.webp)](https://retrospring.net/@cheriecrush)
+[![](https://i.postimg.cc/xj7NbNSQ/Untitled1362-20240607200459.png)](https://rentry.co/riri) [![](https://i.postimg.cc/nzSj2Cjv/Untitled1362-20240607200238.png)]([https://twitter.com/kaoworo) [![](https://i.postimg.cc/sxBBNs7b/Untitled1362-20240607200405.png)](https://retrospring.net/@cheriecrush)
 
   
 </p> 
