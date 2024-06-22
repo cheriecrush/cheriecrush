@@ -33,11 +33,5 @@ https://i.postimg.cc/3Jmj8F0V/Untitled1362-20240607200913.png
 <img src=https://i.postimg.cc/1tGXjjFy/Untitled1379-20240617204705.png>
 
   
-</p> 
-<p align="center">
-
-</p> 
-<p align="center">
-<img src=https://i.postimg.cc/TYf693Sw/Screen-Shot-2024-06-22-at-7-21-31-PM.png>
 
 
