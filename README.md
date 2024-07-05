@@ -20,9 +20,7 @@
 <div align="center">
 
 [![](https://i.postimg.cc/B6SHNrhG/Untitled1363-20240607200002.png)](https://rentry.co/riri)
-[![](
-https://i.postimg.cc/3Jmj8F0V/Untitled1362-20240607200913.png
-)](https://twitter.com/kaoworo) [![](https://i.postimg.cc/Mpw7vfyT/Untitled1362-20240607200957.png)](https://retrospring.net/@cheriecrush)
+ [![](https://i.postimg.cc/Mpw7vfyT/Untitled1362-20240607200957.png)](https://retrospring.net/@cheriecrush)
 
   
 </p> 
